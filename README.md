@@ -18,7 +18,12 @@ this repository will probably not have much progress made now, as i am focusing 
 
   Its closed. They apparently closed 20 years ago. You were there 20 DAYS ago. Weird. The area is also way more progressed than you remember from literally yesterday. People are looking at you weird. Do you look weird? Did that watch mess up your appearance? Do they think you're dead? What did they think your cause of death was? Do you just look like yourself, which makes people confused because they saw you dead? Oh right, at least you know people can see you. Wait, can you talk? "Hello?" you said. Nice, you can talk. Wait, let me look in a mirror.
 
-  You did that. You look like... a glowing humanoid? Like some lazy 3d render made by some lazy guy who happens to be oh so handsome and smart and funny and a good person. Or, like, the opposite lf those 4 qualities. Yeah, probably the latter. Anyways, 
+  You did that. You look like... a glowing humanoid? Like some lazy 3d render made by some lazy guy who happens to be oh so handsome and smart and funny and such a good person. Or, like, the opposite of all those last 4 qualities. Yeah, definitely the latter. Anyways, you don't have anything on your face. Except for a mouth. A simple mouth. Like the one you'd see on a stickfigure made in a drawing by a 1st grader. But better. As in, you can actually open it without it looking weird. And it's not 2d. Yeah, those people make sense. Also, you're really glowing. You should probably buy some clothes. Wait, are you immortal? Ah well, you don't want to roll 500 die trying to get the perfect score.
 
+  You buy clothes. Your size hasn't changed which is nice. And you had grabbed your possessions, so thats nice. Good thing there was a self checkout. Though it said the date was 2062. Weird. Thought stuff would've progressed way more than it did. How many people are in the world now? How are other countries doing? Did World War III happen yet? What about IV? Are you still in a democracy? Who is the president if so? Could you have been arrested for public indecency? Well, your mid-hip doesn't have anything, you know, specific. Do you need to eat?
+
+  Anyways, you put on the clothes. The hoodie hides your face good enough. Nice. And no weird looks anymore. Also nice. Anyways... wait... what's that...
+
+  (Intro Ending)
   
 </details>
