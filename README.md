@@ -1,2 +1,2 @@
 # temporal
-a game about time control
+## a game about time control
