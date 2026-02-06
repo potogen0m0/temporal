@@ -2,7 +2,7 @@
 # temporal
 (a game about time control)
 
-this repository will probably not have much progress made now, as i am focusing on another project, but it will be made public to let you guys see it and stuff.
+this repository will probably not have much progress made now, as i am focusing on another project, but it will be made public to let you guys see it and stuff. this will also NOT include the main game, at least at the time of writing this, instead being only for the testing game, which will always be open-source. mark my words.
 
 <details>
   <summary>Intro spoilers</summary>
