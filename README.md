@@ -28,3 +28,5 @@ this repository will probably not have much progress made now, as i am focusing 
   (Intro Ending)
   
 </details>
+
+hehe i use "anyways" a lot
